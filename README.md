@@ -230,4 +230,4 @@ Unvanquished is offered as a **full free version**, meaning all features and upd
 Get ready to dive into the action-packed world of Unvanquished! **Download now and see for yourself why it's a standout in the realm of free shooters!**
 
 ---
-**Last updated:** 2026-10-24 20:07:52 UTC
+**Last updated:** 2026-10-24 22:50:38 UTC
